@@ -1,1 +1,1 @@
-# translators
+# multiple languages coming soon.
